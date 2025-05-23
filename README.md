@@ -1,0 +1,1 @@
+# RCG2-Instant-Cooldown-Trainer
